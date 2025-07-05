@@ -14,3 +14,9 @@ Clone this repo and follow the instructions in each branch to practice different
 #############################
 hgsertuyjjnkjjlk
  tftftfyiuyyu
+ hufoooooooooooooooooooooooooooo
+ c nvhbvyfyuwgf
+ fjfbbbbuwqya
+ cnncfh
+ wquhfigryfjkBKHBFGH
+ 
